@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @newgirlhannah
 - 👀 I’m interested in looking pretty
 - 🌱 I’m currently learning how to code aha
-- 💞️ I’m looking to collaborate on nothing, your job is obsolete
+- 💞️ I’m looking to collaborate on hmmmm aything x
 - 📫 How to reach me call me, beep me, if you wanna reach me 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am building the next evertbrite :) but better 
